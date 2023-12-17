@@ -9,7 +9,7 @@
 - https://vk.com/verbitckiyy
 - https://t.me/verbitskiyy
 
-##  🛠️ Languages and Tools :  
+## Языки и утилиты  
 
 
 
