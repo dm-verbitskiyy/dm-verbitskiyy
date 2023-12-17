@@ -11,6 +11,7 @@
 
 ## Обучение
 
-![image](https://github.com/dm-verbitskiyy/-about_me/assets/153438834/eabeab46-694a-41aa-9c39-532eddbfcc56)
+![image](https://github.com/dm-verbitskiyy/dm-verbitskiyy/assets/153438834/270fdbc2-268a-44fe-bac2-b976924dc041)
+
 
 Сертификат доступен по ссылке: https://lab.karpov.courses/certificate/15247cf3-7467-43ce-94e6-bb386ddf6195/
